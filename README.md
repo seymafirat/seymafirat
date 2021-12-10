@@ -4,7 +4,7 @@
 
 - 🤝 I’m looking for help with **my coding skills**
 
-- 💬 Ask me about Kotlin**
+- 💬 Ask me about **Kotlin**
 
 - 📫 How to reach me **seymanurfiratt@gmail.com**
 
