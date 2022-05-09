@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **seymanurfiratt@gmail.com**
 
-- ⚡ Fun fact: **I love do pilates and swimming**
+- ⚡ Fun fact: **I love do pilates and researching**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
